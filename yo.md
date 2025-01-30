@@ -1,6 +1,6 @@
 
 
-(っ＾▿＾) Hola!!!!  
+(っ＾▿＾) __Hola!!!!__  
 
 Me llamo Angela M. Zambrana Vera , soy de Bolivia 
 
